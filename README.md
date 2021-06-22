@@ -1,2 +1,2 @@
-# AlisverisUygulamasıUpdated
+# AlisverisUygulamasiUpdated
  
